@@ -24,5 +24,4 @@ Always eager to learn and explore new tools!
 
 ## 📬 Connect with Me  
 - 💼 [LinkedIn](www.linkedin.com/in/mukul-kewat-b83449267)
-- 
 💡 **Always open to collaborating on exciting projects and exploring new technologies!** 🚀  
